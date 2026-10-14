@@ -29,3 +29,9 @@ En desarrollo.
 ## Nota de autoría
 
 Este proyecto es una obra original de sus autores. «Roshidere» y sus elementos pertenecientes a su universo original son propiedad de sus respectivos creadores y titulares de derechos.
+
+## Investigación sobre *Alya Sometimes Hides Her Feelings in Russian*
+
+La investigación documental completa está organizada en la carpeta [`investigacion/`](investigacion/), con informes sobre producción, episodios de la primera temporada, personajes, diferencias con la novela ligera, curiosidades y contexto México-Japón.
+
+[**Abrir el índice de investigación →**](investigacion/README.md)
