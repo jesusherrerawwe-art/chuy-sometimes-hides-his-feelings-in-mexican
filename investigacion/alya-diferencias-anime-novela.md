@@ -1,6 +1,6 @@
 # Diferencias entre el anime y la novela ligera
 
-La primera temporada (T1) de *Alya Sometimes Hides Her Feelings in Russian* (*Tokidoki Bosotto Roshia-go de Dereru Tonari no Alya-san*) adapta el **volumen 1 completo, el volumen 2 completo y el volumen 3 completo**, aunque no lo hace como una traslación lineal capítulo por capítulo. El anime emitió doce episodios: el Blu-ray oficial los divide en los bloques 1–4, 5–8 y 9–12.[2] [3] [4] La correspondencia de capítulos que se usa abajo procede de los índices de los volúmenes y de una guía comunitaria de adaptación; no existe, en las páginas oficiales consultadas, una tabla editorial que declare capítulo por capítulo el guion televisivo.[11] [12] [13] [14]
+La primera temporada (T1) de *Alya Sometimes Hides Her Feelings in Russian* (*Tokidoki Bosotto Roshia-go de Dereru Tonari no Alya-san*) llega hasta el final del material narrativo asociado al volumen 3; la continuidad anunciada parte del volumen 4. No existe una declaración editorial pública que confirme que los volúmenes 1–3 fueron adaptados completos capítulo por capítulo, por lo que la correspondencia detallada de abajo debe leerse como guía comunitaria aproximada, no como tabla oficial. El anime emitió doce episodios: el Blu-ray oficial los divide en los bloques 1–4, 5–8 y 9–12.[2] [3] [4] La correspondencia de capítulos que se usa abajo procede de los índices de los volúmenes y de una guía comunitaria de adaptación; no existe, en las páginas oficiales consultadas, una tabla editorial que declare capítulo por capítulo el guion televisivo.[11] [12] [13] [14]
 
 > **Criterio de evidencia.** Las sinopsis y los finales de episodio se consideran hechos del anime cuando aparecen en el sitio oficial. Las tramas y los capítulos se consideran hechos de las novelas cuando constan en las fichas de KADOKAWA/Yen Press y en los índices de los volúmenes. Las omisiones concretas que solo documenta la wiki de fans o un foro se marcan como **observación secundaria**, no como declaración oficial del estudio o del autor.
 
@@ -8,7 +8,7 @@ La primera temporada (T1) de *Alya Sometimes Hides Her Feelings in Russian* (*To
 
 ### Volumen 1: presentación, pasado de Alya y decisión de Masachika
 
-El primer volumen está organizado como prólogo, ocho capítulos y epílogo. Su recorrido va de la dinámica cotidiana entre Alya y Masachika a la relación de Masachika con Yuki, la revelación de que son hermanos, el recuerdo de cómo Alya llegó a confiar en él y, finalmente, la promesa de apoyarla en la elección estudiantil.[11] KADOKAWA presenta el volumen como la premisa de la chica ruso-japonesa que habla en ruso sin saber que Masachika la entiende.[6]
+El primer volumen está organizado como prólogo, ocho capítulos y epílogo. Su recorrido va de la dinámica cotidiana entre Alya y Masachika a la relación de Masachika con Yuki, la revelación de que son hermanos, el recuerdo de cómo Alya llegó a confiar en él y, finalmente, la promesa de apoyarla en la elección estudiantil.[11] Yen Press describe a Alya como de ascendencia medio rusa; la ficha japonesa de KADOKAWA la presenta como una estudiante rusa. En ambos casos, las sinopsis confirman la premisa de que habla en ruso sin saber que Masachika la entiende.[6]
 
 La guía comunitaria sitúa el material del volumen 1 así:
 

@@ -57,7 +57,7 @@ En el episodio 6 entra formalmente al consejo con Masachika y acepta disputar la
 
 La novela profundiza el paso de “compañera que oculta su afecto” a candidata que reconoce que necesita una red de apoyo. En el volumen 4, después de la clausura, Alya y Masachika empiezan a llamarse por sus nombres y la relación avanza durante el campamento del consejo.[19] El volumen 7 hace explícito que ella quiere que Masachika la mire a ella y la considere su única compañera, mientras el regreso de la primera enamorada de él —Masha— altera el equilibrio emocional.[23]
 
-El volumen 8 sitúa un punto de inflexión: Alya reconoce sus propios sentimientos, celebra su cumpleaños con Masachika y recibe de él una afirmación afectiva importante, aunque la sinopsis oficial advierte que una amenaza empieza a infiltrarse en su vida cotidiana.[24] En el volumen 9 acompaña a Masachika cuando este deja de huir de la familia Suo; por primera vez sostiene una conversación directa con Yuki, ya no solo desde la rivalidad escolar.[25] El volumen 10 describe a Alya aceptando la verdad del pasado que comparten los hermanos Suo y soportando el intenso “modo hermana” de Yuki.[26]
+El volumen 8 sitúa un punto de inflexión: Alya reconoce sus propios sentimientos, celebra su cumpleaños con Masachika y recibe de él una afirmación afectiva importante, aunque la sinopsis oficial advierte que una amenaza empieza a infiltrarse en su vida cotidiana.[24] En el volumen 9 acompaña a Masachika cuando este deja de huir de la familia Suou; por primera vez sostiene una conversación directa con Yuki, ya no solo desde la rivalidad escolar.[25] El volumen 10 describe a Alya aceptando la verdad del pasado que comparten los hermanos Suo y soportando el intenso “modo hermana” de Yuki.[26]
 
 En el volumen 11 su crecimiento se formula en términos de confianza y dignidad: debe decidir su promesa electoral frente a un rival fuerte y la sinopsis la describe con una seguridad y una elegancia nuevas.[27] Esto es material de novela posterior, no un adelanto que la T1 haya mostrado.
 
@@ -75,7 +75,7 @@ Su voz japonesa es **Kōhei Amasaki**.[2] [10] El reparto de la adaptación cons
 
 La fachada de Masachika es la apatía. Su conducta cotidiana parece la de un otaku que no quiere esforzarse, pero cuando Alya necesita apoyo aplica la formación analítica que aprendió en la infancia. La ficha oficial dice que se siente conmovido por la forma en que ella trabaja sin hacer concesiones a su ideal y por eso promete luchar a su lado en la elección.[2] Su motivación inicial no es ser presidente: es ayudarla a competir de manera real.
 
-La estructura familiar está dosificada como misterio. En la T1 se conoce su vínculo de infancia con Yuki y su pasado en la casa Suo, pero la afirmación de que Yuki es su hermana biológica pertenece a la revelación posterior de la novela. El volumen 9 presenta la confesión de Masachika (“Yuki es mi hermana de sangre”) y su posterior confrontación con su madre y su abuelo.[25] El volumen 10 formula su decisión de “volver a ser Suo Masachika”, lo que confirma que la identidad Suo no es una simple amistad familiar, aunque las sinopsis editoriales no explican toda la historia de custodia, herencia y cambio de apellido.[26]
+La estructura familiar está dosificada en distintos niveles. La ficha oficial ya identifica a Yuki como hermana biológica de Masachika, aunque la T1 no dramatiza con claridad toda esa información dentro de sus episodios. El volumen 9 convierte el parentesco en una confesión narrativa explícita y desarrolla la confrontación de Masachika con su madre y su abuelo.[25] El volumen 10 formula su decisión de “volver a ser Suo Masachika”, lo que confirma que la identidad Suo no es una simple amistad familiar, aunque las sinopsis editoriales no explican toda la historia de custodia, herencia y cambio de apellido.[26]
 
 Su doble secreto inicial —entender ruso y ser el primer enamorado de una niña que reaparece en su vida— sostiene el humor y el conflicto romántico. El volumen 5 confirma que reconoce a Masha como “esa niña” de sus recuerdos.[21] No debe presentarse la relación de infancia como una revelación de la T1: el resumen oficial del anime conserva el misterio, mientras que la editorial japonesa lo hace explícito en una novela posterior.
 
@@ -86,15 +86,15 @@ Su doble secreto inicial —entender ruso y ser el primer enamorado de una niña
 - **Masha.** Es la persona vinculada a su primer enamoramiento. El volumen 5 confirma el reconocimiento y el 7 anuncia que los sentimientos de Masha conmueven a Masachika.[21] [23]
 - **Ayano.** La sirvienta o asistente de Yuki lo considera también su “otro amo”, una formulación de la ficha oficial que explica por qué le presta obediencia aun cuando la candidatura de Yuki y la de Alya se enfrentan.[5]
 
-La T1 lo muestra como estratega de Alya. Entra al consejo en el episodio 6, trabaja en la preparación electoral y se convierte en la persona a quien ella busca cuando la rivalidad con Yuki y Sayaka escala.[13] [14] En el final, su “secreto” práctico es la idea que ofrece a Alya para que afronte el discurso de clausura; el episodio no revela todavía toda la historia de la familia Suo.[15]
+La T1 lo muestra como estratega de Alya. Entra al consejo en el episodio 6, trabaja en la preparación electoral y se convierte en la persona a quien ella busca cuando la rivalidad con Yuki y Sayaka escala.[13] [14] En el final, su “secreto” práctico es la idea que ofrece a Alya para que afronte el discurso de clausura; el episodio no revela todavía toda la historia de la familia Suou.[15]
 
 En las novelas, el volumen 3 reabre la relación con los Suo y lo deja físicamente afectado, mientras que el volumen 6 lo coloca como investigador solitario de un sabotaje contra el festival, capaz de proteger la presentación de Alya y ganarse su confianza.[18] [22] Los volúmenes 9 y 10 convierten esa fuga familiar en arco de identidad: afronta a su madre y a su abuelo, reconoce a Yuki públicamente como hermana, se reconcilia con ella y decide recuperar el nombre Suo sin abandonar su compromiso con Alya.[25] [26]
 
-## Yuki Suo
+## Yuki Suou (Yuki Suo / Yuki Suō)
 
 ### Identidad, apariencia y doble registro
 
-**Yuki Suo** (周防有希) nació en la antigua familia noble Suo. Fue presidenta del consejo estudiantil en secundaria y en el instituto trabaja en comunicación pública mientras aspira de nuevo a la presidencia.[3] La presentación editorial la coloca, junto a Alya, entre las dos grandes bellezas del curso y le da la imagen de una “señorita de alcurnia”; la ficha del anime insiste en su compostura y en que la consideran el modelo de una dama.[3] [28]
+**Yuki Suou** (周防有希) nació en la antigua familia noble Suo. Fue presidenta del consejo estudiantil en secundaria y en el instituto trabaja en comunicación pública mientras aspira de nuevo a la presidencia.[3] La presentación editorial la coloca, junto a Alya, entre las dos grandes bellezas del curso y le da la imagen de una “señorita de alcurnia”; la ficha del anime insiste en su compostura y en que la consideran el modelo de una dama.[3] [28]
 
 Su secreto familiar es que Masachika es su hermano biológico, aunque ambos presentan en la escuela la versión de que son amigos de infancia.[3] Este ocultamiento no es un giro interpretativo: está en la ficha oficial. La voz japonesa es **Wakana Maruoka**.[3] [10]
 
@@ -115,7 +115,7 @@ La T1 la presenta como la candidata con ventaja escénica. En el episodio 12, Yu
 
 El material posterior reorienta a Yuki desde la “rival carismática” hacia un personaje que también necesita reconciliarse con su propia familia. El volumen 10 señala que el enfrentamiento verbal con Masachika termina en una reconciliación y que Alya debe aprender a tratar con la versión íntima y juguetona de Yuki, no solo con la candidata impecable.[26] La publicación oficial de la serie también confirma historias laterales donde sus planes otaku y sus maniobras para seguir a la pareja forman parte de la comedia, pero esas viñetas no deben confundirse con el eje electoral principal.[20] [28]
 
-## Maria/Mariya “Masha” Mikhailovna Kujou
+## Mariya “Masha” Mikhailovna Kujou
 
 ### Identidad, apariencia y función
 
@@ -226,7 +226,7 @@ El cambio más importante de la T1 es que Alya empieza a aceptar ayuda. Su pasad
 Las novelas expanden la historia en cuatro líneas conectadas:
 
 1. **Romance y confianza.** Los volúmenes 4 a 8 pasan de los nombres propios y el campamento a la conciencia explícita de los sentimientos de Alya. También convierten a Masha y su recuerdo de “Saa-kun” en un conflicto presente.[19] [20] [21] [23] [24]
-2. **Identidad de Masachika.** La relación con los Suo deja de ser un rumor escolar. Los volúmenes 9 y 10 hacen explícita la hermandad biológica con Yuki, el enfrentamiento con la familia, la reconciliación y la decisión de recuperar el nombre Suo.[25] [26]
+2. **Identidad de Masachika.** La relación con los Suou deja de ser un rumor escolar. Los volúmenes 9 y 10 hacen explícita la hermandad biológica con Yuki, el enfrentamiento con la familia, la reconciliación y la decisión de recuperar el nombre Suo.[25] [26]
 3. **Elección, amenazas y traición.** El festival del volumen 6, la presión por las promesas electorales y la traición de Nonoa en los volúmenes 10–11 elevan el conflicto por encima del triángulo romántico.[22] [26] [27]
 4. **Historias laterales.** Los volúmenes 4.5 y *Urahabanashi* reúnen episodios complementarios sobre el consejo, los planes otaku de Yuki, las citas observadas por Alya y la vida cotidiana de los miembros. Son canónicos como historias publicadas por KADOKAWA, pero no deben mezclarse con la línea principal ni usarse para afirmar que algo ocurrió en la T1.[20] [28]
 
@@ -236,7 +236,7 @@ Las novelas expanden la historia en cuatro líneas conectadas:
 - **Anime frente a novela.** El sitio oficial del anime describe la T1 episodio por episodio, pero sus sinopsis no equivalen a una guía completa de los volúmenes adaptados. Por eso se atribuyen a la T1 solo los hechos que la propia página de episodios o la ficha de adaptación respalda.[10]–[15]
 - **El secreto ruso.** El volumen 1 y el episodio 1 establecen que Masachika entiende ruso y Alya no lo sabe.[11] [16] Las sinopsis posteriores anuncian cambios emocionales y familiares, pero no precisan en qué escena exacta se verbaliza cada secreto. No se fija aquí un capítulo de revelación que las fuentes públicas consultadas no indiquen.
 - **El “novio” de Masha.** La ficha oficial dice que ella rechaza confesiones alegando que tiene novio, pero no identifica quién es ni afirma que el rumor sea literalmente cierto.[4]
-- **Familias y edades.** Solo se consigna la estructura familiar cuando la fuente lo dice: Alya y Masha son hermanas, el padre de Alya es ruso, la madre japonesa y Masha es un año mayor; Yuki y Masachika son hermanos biológicos según la ficha y el volumen 9.[1] [3] [25] No se rellenan nombres de padres, estaturas, cumpleaños o parentescos no publicados en las fuentes consultadas.
+- **Familias y edades.** Solo se consigna la estructura familiar cuando la fuente lo dice: Alya y Masha son hermanas, el padre de Alya es ruso, la madre japonesa y Masha es un año mayor; Yuki y Masachika aparecen como hermanos biológicos en la ficha oficial, y el volumen 9 dramatiza esa revelación.[1] [3] [25] No se rellenan nombres de padres, estaturas, cumpleaños o parentescos no publicados en las fuentes consultadas.
 - **Interpretación.** Expresiones como “máscara social”, “gato desconfiado”, “segunda línea romántica” o “contrapeso” son síntesis analíticas basadas en la obra o en la entrevista de Uesaka, no etiquetas oficiales de una enciclopedia de personajes.[29]
 - **Alcance del elenco.** KADOKAWA también acredita a Takeshi Maruyama y Hikaru Kiyomiya en el anime.[10] No se desarrollan aquí porque no tienen una ficha central equivalente en el sitio oficial y su función no alcanza el núcleo de candidatos, familiares y miembros directivos analizado en esta sección.
 

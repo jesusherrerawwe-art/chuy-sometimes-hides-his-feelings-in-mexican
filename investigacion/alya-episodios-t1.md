@@ -43,7 +43,7 @@ La parte más incómoda del capítulo ocurre durante la limpieza del aula. Alya 
 
 - Alya no es fría por falta de sentimientos; utiliza el ruso para expresar su afecto sin tener que sostener una confesión frontal [3] [16].
 - Masachika comprende el ruso y lo oculta. Este es el mecanismo de secreto que sostiene la comedia romántica, confirmado por la ficha oficial y por la descripción de la serie de Crunchyroll [3] [16].
-- Masachika conoce desde antes a Yuki, Masha y otros miembros del consejo, pero el capítulo todavía no explica la naturaleza completa de esos vínculos. Cualquier conclusión sobre la familia Suō o la identidad de la niña rusa pertenece a episodios posteriores, no a este estreno [31].
+- Yuki ya aparece como amiga de infancia de Masachika; Masha y otros miembros del consejo también aparecen, pero el estreno todavía no explica todos sus vínculos previos con él. Cualquier conclusión sobre la familia Suō o la identidad de la niña rusa pertenece a episodios posteriores, no a este estreno [31].
 
 **Evolución emocional:** Alya pasa de tratar a Masachika como un compañero perezoso al que debe corregir a mostrar una vulnerabilidad selectiva. Él, por su parte, deja de ser solo el bromista indolente: su decisión de proteger el secreto de Alya ya implica una forma de consideración, aunque todavía la disfraza de indiferencia. La tensión nace de que ambos se acercan y retroceden en el mismo gesto.
 
@@ -289,22 +289,22 @@ La resolución emocional no es una reconciliación total con Sayaka. Lo importan
 
 ### Episodio 10 — «A Belated Birthday Party»
 
-**Emisión:** 4 de septiembre de 2024 [2] [12]. La cobertura oficial previa confirma la promesa académica de Alya, el malestar por el cumpleaños y la salida posterior [12] [25].
+**Emisión:** 4 de septiembre de 2024 [2] [12]. La cobertura oficial previa confirma la promesa académica de Alya, el malestar por el cumpleaños y la salida posterior [12] [33].
 
 **Personajes presentes:** Masachika; Alya; Yuki; Nonoa; Sayaka; Masha; Ayano; compañeros de clase y alumnado.
 
-**Acontecimientos y conflicto:** Masachika intenta estudiar para los exámenes, pero su reputación de vago se convierte en un problema real. Alya lo llama y, para obligarlo a concentrarse, propone una apuesta: si queda entre los treinta primeros, ella hará lo que él pida dentro de límites razonables; si no, será Masachika quien deberá cumplir la petición de Alya. La apuesta es un juego romántico, pero también obliga a Masachika a trabajar con disciplina [12] [25].
+**Acontecimientos y conflicto:** Masachika intenta estudiar para los exámenes, pero su reputación de vago se convierte en un problema real. Alya lo llama y, para obligarlo a concentrarse, propone una apuesta: si queda entre los treinta primeros, ella hará lo que él pida dentro de límites razonables; si no, será Masachika quien deberá cumplir la petición de Alya. La apuesta es un juego romántico, pero también obliga a Masachika a trabajar con disciplina [12] [33].
 
 Durante la conversación surge la fecha del cumpleaños de Masachika, que ya pasó. Alya descubre que no fue invitada a ninguna celebración. Para ella, una invitación de cumpleaños es una señal de amistad y cercanía especialmente significativa, por lo que interpreta la omisión como una prueba de que quizá no ocupa el lugar que creía en la vida de Masachika. La diferencia cultural no elimina el dolor; solo explica por qué él no entendió que debía invitarla [12].
 
-Masachika le aclara que en su familia los cumpleaños no suelen celebrarse. Al ver que Alya continúa afectada, propone una celebración tardía para los dos. La salida comienza con la atención que Alya atrae en público y su forma de ahuyentar a los admiradores usando el ruso. Después hablan de la ceremonia de clausura, donde las candidaturas podrán presentar una especie de discurso ante todo el alumnado. Masachika advierte que la popularidad de Yuki es tan grande que Alya no necesita una victoria inmediata; primero debe reducir la distancia y conseguir que el público la escuche [12] [25].
+Masachika le aclara que en su familia los cumpleaños no suelen celebrarse. Al ver que Alya continúa afectada, propone una celebración tardía para los dos. La salida comienza con la atención que Alya atrae en público y su forma de ahuyentar a los admiradores usando el ruso. Después hablan de la ceremonia de clausura, donde las candidaturas podrán presentar una especie de discurso ante todo el alumnado. Masachika advierte que la popularidad de Yuki es tan grande que Alya no necesita una victoria inmediata; primero debe reducir la distancia y conseguir que el público la escuche [12] [33].
 
-Alya pregunta por los rumores sobre Nonoa y Sayaka. Masachika le explica que Nonoa asumió una parte de la responsabilidad para que las burlas contra Sayaka terminaran, aunque esa maniobra también dejó el resultado del debate en una zona ambigua. Alya reconoce el esfuerzo de Masachika y lo agradece de forma tan directa que él se sonroja. La pareja intercambia bromas en japonés y comparte comida de una manera que ahora ya no incomoda a Alya. Ella le regala una taza y deja entrever que conserva otra a juego para sí misma, un gesto doméstico que hace visible una intimidad que todavía no se atreven a llamar relación [25] [32].
+Alya pregunta por los rumores sobre Nonoa y Sayaka. Masachika le explica que Nonoa asumió una parte de la responsabilidad para que las burlas contra Sayaka terminaran, aunque esa maniobra también dejó el resultado del debate en una zona ambigua. Alya reconoce el esfuerzo de Masachika y lo agradece de forma tan directa que él se sonroja. La pareja intercambia bromas en japonés y comparte comida de una manera que ahora ya no incomoda a Alya. Ella le regala una taza y deja entrever que conserva otra a juego para sí misma, un gesto doméstico que hace visible una intimidad que todavía no se atreven a llamar relación [33] [32].
 
 **Revelaciones confirmadas por el episodio:**
 
 - Alya relaciona las invitaciones de cumpleaños con la amistad y se siente rechazada al no haber recibido una [12].
-- Masachika y Alya celebran el cumpleaños de forma tardía y a solas; la salida combina estrategia electoral y avance romántico [12] [25].
+- Masachika y Alya celebran el cumpleaños de forma tardía y a solas; la salida combina estrategia electoral y avance romántico [12] [33].
 - El discurso de la ceremonia de clausura será decisivo para que el alumnado conozca a las candidaturas, aunque no es todavía la elección final [12].
 - La taza a juego es una señal de afecto y confianza, pero no equivale a una confesión formal ni a un noviazgo confirmado.
 
@@ -312,7 +312,7 @@ Alya pregunta por los rumores sobre Nonoa y Sayaka. Masachika le explica que Non
 
 **Conexión con el episodio 11:** El examen y el cansancio dejan a Masachika enfermo. Él avisa a Yuki, pero la persona que va a cuidarlo es Alya. La ausencia de Masachika de la escuela permitirá que Yuki ponga a Alya en una emisión de radio improvisada antes de la ceremonia [13].
 
-**Fuentes y adaptación:** La sinopsis oficial confirma la apuesta académica, el cumpleaños y el paseo, mientras la ficha secundaria añade el contenido de la cita y el regalo. La novela y el anime pueden distribuir los capítulos de forma distinta; la guía no usa la numeración de volúmenes como prueba de una equivalencia exacta [12] [25] [32].
+**Fuentes y adaptación:** La sinopsis oficial confirma la apuesta académica, el cumpleaños y el paseo, mientras la ficha secundaria añade el contenido de la cita y el regalo; la ficha de TV Guide citada aquí corresponde al episodio 10, no al episodio 12. La novela y el anime pueden distribuir los capítulos de forma distinta; la guía no usa la numeración de volúmenes como prueba de una equivalencia exacta [12] [33] [32].
 
 ---
 
@@ -349,15 +349,15 @@ Al final, Sayaka y Nonoa interrumpen para disculparse por lo ocurrido en la asam
 
 ### Episodio 12 — «Facing Forward»
 
-**Emisión:** 18 de septiembre de 2024 [2] [14]. La ficha de TV Guide Japan confirma el título, el argumento de la ceremonia y el reparto principal del episodio final [27]. La noticia de Crunchyroll publicada ese día identifica el capítulo como el final de la primera temporada [28].
+**Emisión:** 18 de septiembre de 2024 [2] [14]. La ficha de TV Guide Japan confirma el título, el argumento de la ceremonia y el reparto principal del episodio final [25]. La noticia de Crunchyroll publicada ese día identifica el capítulo como el final de la primera temporada [28].
 
 **Personajes presentes:** Alya; Masachika; Yuki; Ayano; Sayaka; Nonoa; Masha; Chisaki; Touya; estudiantes de Seirei Academy y público de la ceremonia.
 
-**Acontecimientos y conflicto:** Después de quedar por detrás de Yuki en la emisión, Alya practica su intervención para la ceremonia de clausura. La ocasión reúne a toda la escuela y, aunque formalmente es un saludo de los miembros del consejo, funciona como la primera presentación de las candidaturas presidenciales. La ansiedad de Alya no procede de falta de preparación intelectual, sino del miedo a que toda la escuela vea su inseguridad al mismo tiempo [14] [27].
+**Acontecimientos y conflicto:** Después de quedar por detrás de Yuki en la emisión, Alya practica su intervención para la ceremonia de clausura. La ocasión reúne a toda la escuela y, aunque formalmente es un saludo de los miembros del consejo, funciona como la primera presentación de las candidaturas presidenciales. La ansiedad de Alya no procede de falta de preparación intelectual, sino del miedo a que toda la escuela vea su inseguridad al mismo tiempo [14] [25].
 
 Masachika le ofrece una estrategia: no intenta convertirla en una oradora artificialmente perfecta, sino usar el nerviosismo como forma de romper la distancia con el público. Yuki habla primero y propone recuperar el buzón de sugerencias estudiantiles, además de invocar su experiencia previa como presidenta en secundaria. Su discurso es seguro y popular; Masachika reconoce que funciona, aunque lo considera construido sobre promesas generales. Ayano la sigue con una intervención de apoyo que refuerza la imagen de la pareja [2].
 
-Cuando llega el turno de Alya, comienza en ruso. El público se desconcierta y ella finge que el idioma se le escapó por los nervios. La maniobra relaja la sala y evita que el discurso quede aplastado por la solemnidad de Yuki. Después, Alya habla de forma más honesta: admite que todavía no tiene la experiencia de Yuki, pero promete trabajar más que nadie para ganarla. La fuerza de la intervención no está en negar su desventaja, sino en asumirla delante de todos [14] [27].
+Cuando llega el turno de Alya, comienza en ruso. El público se desconcierta y ella finge que el idioma se le escapó por los nervios. La maniobra relaja la sala y evita que el discurso quede aplastado por la solemnidad de Yuki. Después, Alya habla de forma más honesta: admite que todavía no tiene la experiencia de Yuki, pero promete trabajar más que nadie para ganarla. La fuerza de la intervención no está en negar su desventaja, sino en asumirla delante de todos [14] [25].
 
 Masachika sube después y se comporta deliberadamente como un payaso. Se burla de su propia fama de vago y deja que el público se ría, pero usa esa risa para pedir que miren a Alya con atención. Explica que la eligió por su carisma y por su honestidad. También revela el plan que había reservado con Sayaka y Nonoa: si Alya llega a la presidencia, las dos se incorporarán al consejo bajo su liderazgo. El anuncio sorprende a Yuki y Ayano porque transforma a las antiguas rivales en posibles colaboradoras y muestra que Alya no quiere gobernar mediante exclusión [2] [14].
 
@@ -367,7 +367,7 @@ Después, Masachika confiesa que no quedó entre los treinta primeros del examen
 
 **Revelaciones confirmadas por el episodio:**
 
-- El discurso de la ceremonia es tratado como equivalente práctico a una presentación de campaña [14] [27].
+- El discurso de la ceremonia es tratado como equivalente práctico a una presentación de campaña [14] [25].
 - Alya consigue superar su bloqueo, conectar con el público y presentarse como una candidata sincera, aunque no gana todavía la elección presidencial [14].
 - Masachika expone su apoyo a Alya y anuncia que Sayaka y Nonoa podrían entrar en el consejo si ella vence; esta es la principal jugada política del final [2] [14].
 - Yuki admite la derrota de la jornada, pero mantiene su candidatura y promete competir el año siguiente [2].
@@ -377,7 +377,7 @@ Después, Masachika confiesa que no quedó entre los treinta primeros del examen
 
 **Conexión con lo que sigue:** El final abre el arco de las vacaciones de verano. Crunchyroll informó tras la emisión que la segunda temporada continuaría la adaptación a partir del volumen 4 de las novelas, y el comentario del autor identifica ese tramo como el de las vacaciones de verano [28]. Oricon también reportó que se animaría el contenido desde el cuarto volumen [30]. Eso confirma el punto editorial anunciado, pero no convierte automáticamente cada volumen en una equivalencia exacta de episodios ni autoriza a atribuir a la T1 acontecimientos que todavía no aparecen en pantalla.
 
-**Estado de las fuentes:** El sitio oficial confirma la preparación de Alya y el orden de los discursos, y TV Guide Japan reproduce el mismo argumento y el reparto del final [14] [27]. Los detalles de la estrategia, el resultado no electoral y el acuerdo de verano proceden del episodio emitido y se contrastan con una relación secundaria; el anuncio de la continuación se documenta por Crunchyroll y Oricon [2] [28] [30].
+**Estado de las fuentes:** El sitio oficial confirma la preparación de Alya y el orden de los discursos, y TV Guide Japan reproduce el mismo argumento y el reparto del final [14] [25]. Los detalles de la estrategia, el resultado no electoral y el acuerdo de verano proceden del episodio emitido y se contrastan con una relación secundaria; el anuncio de la continuación se documenta por Crunchyroll y Oricon [2] [28] [30].
 
 ---
 
@@ -467,3 +467,5 @@ Las secciones «evolución emocional», «conexión» y algunas observaciones so
 [31]: https://roshidere.fandom.com/wiki/Episode_1 "Roshidere Wiki: ficha secundaria del episodio 1 y personajes en orden de aparición"
 
 [32]: https://roshidere.fandom.com/wiki/Episode_4 "Roshidere Wiki: ficha secundaria del episodio 4 y resolución del conflicto"
+
+[33]: https://www.tvguide.or.jp/db/anime/roshidere/season1/episode10/ "TV Guide Japan: ficha, argumento y reparto del episodio 10"
